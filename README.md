@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ILR-P
-- 👀 I’m interested in Robotics
 - 🌱 I’m currently learning at UTCN
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: andor_patrick@yahoo.com
