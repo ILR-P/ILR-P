@@ -2,7 +2,7 @@
 - 👀 I’m interested in Robotics
 - 🌱 I’m currently learning at UTCN
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me, idk
+- 📫 How to reach me: andor_patrick@yahoo.com
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: Skrrr
 
